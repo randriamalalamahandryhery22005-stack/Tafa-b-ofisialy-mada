@@ -1,2 +1,2 @@
-# Tafa-b-ofisialy-mada
-Bienvenue dans l'univers de Tafaß Ofisialy - Réseaux Sociaux - Bonne Chance !
+# Tafa-b-ofisialy
+Bienvenue dans l'univers de Tafa-b-Ofisialy. Bonne chance !
